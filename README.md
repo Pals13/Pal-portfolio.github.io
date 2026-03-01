@@ -1,1 +1,0 @@
-# Pal-portfolio.github.io
